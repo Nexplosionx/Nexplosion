@@ -1,1 +1,1 @@
-# Nexplosion
+Hello GM its Nexplosion from Endless.gg i have in game problems About transmogrifications . last time i can't use any transmog ,also i got Scholomance D3 Gear i farmed it lot of time but in transmog bag i can See all the items {belt/chest/gloves} except Shoulders. tryied to remove cache but nothing happend . please help me. that shoulder name is  [Dreadmist Mantle]. (
